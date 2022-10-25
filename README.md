@@ -18,8 +18,9 @@ A heightening (and lengthening) project was completed in 2013 and the dam is now
 | 4        |   40 MW  |       1971         |    Voest Austria      |  Kaplan       |      Asea Brown Bo   |    Government     |
 | 3        |   40 MW  |       1989         |    Boving Co          |  Kaplan       |     Asea Brown Bo    |     Government    |
  
-* Link to WiKiPedia page 
-[More Information on WIKIPEDIA](https://en.wikipedia.org/wiki/Roseires_Dam#:~:text=The%20Roseires%20Dam%20%28Arabic%3A%20%D8%AE%D8%B2%D8%A7%D9%86%20%D8%A7%D9%84%D8%B1%D9%88%D8%B5%D9%8A%D8%B1%D8%B5%29%20is%20a,m%2C%20and%20an%20earth%20dam%20on%20either%20side.)
+* For more info please visit
+[WIKIPEDIA](https://en.wikipedia.org/wiki/Roseires_Dam)
+
 
 
 
