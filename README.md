@@ -2,7 +2,7 @@
 
 **The Roseieres dam**
 
-![Roseires Dam Construction of Stage 2](C:\Users\mofad\Desktop\MY GIT\Mo. FADUL)
+![Roseires Dam Construction of Stage 2](Roseires-Dam-SMEC-1.jpg)
 
 The Roseires dam is located on the Blue Nile at Ad Damazin, just upstream of the town of Er Roseires, in Sudan. 
 It consists of a concrete buttress dam 1 km wide with a maximum height of 68 m, and an earth dam on either side. 
